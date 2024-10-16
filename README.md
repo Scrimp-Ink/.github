@@ -1,2 +1,2 @@
-# .github
-Scrimp Ink Studios is a triple-A video game development studio
+# 🦐
+[ ] I dunno what to put here
