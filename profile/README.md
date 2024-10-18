@@ -1,3 +1,4 @@
 ## Scrimp Ink Studios 🦐
 
-Scrimp Ink Studios is the best triple-A video games developer
+Scrimp Ink Studios is the best quadruple-A video games developer and if you don't agree you're fired
+Our genre: vaporware
